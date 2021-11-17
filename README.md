@@ -10,6 +10,8 @@ When I was sixteen years old, I started reading Yu Kwang-Chung's poetry and lite
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?logo=linkedin)](https://www.linkedin.com/in/que-g-28591610b/)
 [![Twitter](https://img.shields.io/badge/Twitter-white?logo=twitter)](https://twitter.com/chiuchi31)
+[![Instagram](https://img.shields.io/badge/Instagram-white?logo=instagram)](https://www.instagram.com/lilianlee.me/)
+
 
 #### ⚡ Some fun facts of myself: 
 
