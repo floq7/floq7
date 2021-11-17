@@ -13,7 +13,7 @@ When I was sixteen years old, I started reading Yu Kwang-Chung's poetry and lite
 [![Instagram](https://img.shields.io/badge/Instagram-white?logo=instagram)](https://www.instagram.com/qchee7)
 
 
-#### ⚡ Some fun facts of myself: 
+#### ⚡ Some fun facts of myself ⚡: 
 
 - ⛹🏻‍♀️ Tim Duncan is my childhood hero. Now, I am a devoted sports journalist inspired by KNES 287 Sport and American Society at UMD. 
 
