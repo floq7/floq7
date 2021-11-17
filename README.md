@@ -1,4 +1,8 @@
 ### Hi there 👋
+
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?logo=linkedin)](https://www.linkedin.com/in/que-g-28591610b/)
+[![Twitter](https://img.shields.io/badge/Twitter-white?logo=twitter)](https://twitter.com/chiuchi31)
+
 #### ✨ I'm Que (秋琪), a... ✨
 
 - 💻 NLP enginner at Memect 
