@@ -2,7 +2,7 @@
 
 #### ✨ I'm Que (秋琪), a... ✨
 
-- 💻 NLP enginner at Memect 
+- 💻 NLP engineer at Memect 
 - 📚 UMD CS Alum 
 - 📰 Sports journalist
 
